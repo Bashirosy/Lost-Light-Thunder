@@ -1,6 +1,6 @@
-![Throne_And_Liberty_2](https://github.com/user-attachments/assets/cd4ecdea-0017-45fe-8117-9b93fd7bfa88)
+![Lost_Light_2](https://github.com/user-attachments/assets/5d9e57b2-902c-4623-a7b4-0af3f44627ed)
 
-![Throne_And_Liberty_3](https://github.com/user-attachments/assets/2c8f7920-de3a-4027-88a7-39dc6870a4fa)
+![Lost_Light_3](https://github.com/user-attachments/assets/b291a8a1-1f1e-4cdb-a718-eb81eb326670)
 
 ---
 
